@@ -1,4 +1,4 @@
-## hi there. im steven lawrence santos. 
+## hi there. 
 
 <!--
 **mars3jx/mars3jx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
