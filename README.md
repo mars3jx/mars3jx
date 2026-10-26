@@ -2,7 +2,7 @@
 im' steven lawrence santos.
 [github](https://github.com/mars3jx/)  [google](https://me.developers.google.com/u/stevenlawrencesantos3)
 
-🎓 Ennis HS | The University of Texas at Arlington
+* Ennis HS | The University of Texas at Arlington
 
 * ✉️  You can contact me at [zane3j@gmail.com](mailto:zane3j@gmail.com)
 <!--
