@@ -4,7 +4,7 @@ im' steven lawrence santos.
 
 
 
-(https://www.linkedin.com/in/steven-m-santos-a79aa0446)
+<a style="color: red;"(https://www.linkedin.com/in/steven-m-santos-a79aa0446)</a>
 
 
 <!--
