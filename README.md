@@ -2,7 +2,9 @@
 im' steven lawrence santos.
 [github](https://github.com/mars3jx/)  [google](https://me.developers.google.com/u/stevenlawrencesantos3)
 
-[display:none](https://www.linkedin.com/in/steven-m-santos-a79aa0446)
+
+
+(https://www.linkedin.com/in/steven-m-santos-a79aa0446)
 
 
 <!--
