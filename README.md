@@ -2,6 +2,9 @@
 im' steven lawrence santos.
 [github](https://github.com/mars3jx/)  [google](https://me.developers.google.com/u/stevenlawrencesantos3)
 
+[link](https://www.linkedin.com/in/steven-m-santos-a79aa0446)
+
+
 <!--
 **mars3jx/mars3jx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
