@@ -3,6 +3,21 @@
 
 Here are some ideas to get you started:
 
+
+[.](mailto:contact.zane3j@gmail.com)  
+
+
+
+
+
+
+
+
+
+[.](https://www.linkedin.com/in/stevent321) 
+
+
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
